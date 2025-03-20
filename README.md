@@ -46,6 +46,6 @@ Lista zadań do bingo:
 
 23. Znajdź Polaka i napij się z nim wódki ❌
 
-24. Zrób komuś masaż stóp ❌
+24. Zrób komuś masaż stóp ✅
 
 25. Zbierz przynajmniej 3 osoby które będą z Tobą skandować: "Pentogang" ❌
