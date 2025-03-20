@@ -28,7 +28,7 @@ Lista zadań do bingo:
 
 14. Namaluj obraz przy publiczności i go sprzedaj ❌
 
-15. Zjedz smażone owady – chrząszcze, skorpiony lub pająki (wybierają widzowie) ❌
+15. Zjedz smażone owady – chrząszcze, skorpiony lub pająki (wybierają widzowie) ✅
 
 16. Zamień się z obcą osobą koszulką ❌
 
