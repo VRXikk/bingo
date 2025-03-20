@@ -2,7 +2,7 @@ Lista zadań do bingo:
 
 1. Zorganizuj randkę z Tajką / Ladyboyem ❌
 
-2. Zarób 500 bahtów (w dowolny sposób) ❌ (5/500)
+2. Zarób 500 bahtów (w dowolny sposób) ❌ (105/500)
 
 3. Powiedź do ochroniarza w klubie „Khuu jab chai mai?" (Czy możemy się przytulić?) I to zrób. ❌
 
