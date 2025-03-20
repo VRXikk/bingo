@@ -8,7 +8,7 @@ Lista zadań do bingo:
 
 4. Zjedz jajko baluta (jajko z zarodkiem) ❌
 
-5. Śpiewaj znaną Ci piosenkę dopóki ktoś nie dołączy ❌
+5. Śpiewaj znaną Ci piosenkę dopóki ktoś nie dołączy ✅
 
 6. Przyrządź posiłek/danie i poproś o ocenę obcej osoby ❌
 
