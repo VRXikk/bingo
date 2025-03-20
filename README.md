@@ -30,7 +30,7 @@ Lista zadań do bingo:
 
 15. Zjedz smażone owady – chrząszcze, skorpiony lub pająki (wybierają widzowie) ✅
 
-16. Zamień się z obcą osobą koszulką ❌
+16. Zamień się z obcą osobą koszulką ✅
 
 17. Zdobądź stanik (kupowanie się nie liczy) ❌
 
